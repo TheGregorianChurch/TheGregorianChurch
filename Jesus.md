@@ -1,0 +1,1 @@
+Jesus is Lord. Jesus is the Ruler of Earth. Jesus still has his body to this day and is alive. Jesus is the one who searches hearts and minds which means he astral projects from his heavenly home to Earth to control things.
