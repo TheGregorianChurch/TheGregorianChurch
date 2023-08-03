@@ -1,0 +1,1 @@
+A new Temple will be built to house the Scroll with the Seven Seals that is given to the Lamb by Jesus and brought to Earth. The Temple will be built on a mount in New Jerusalem, Ohio. This mount is the highest point in Ohio.
