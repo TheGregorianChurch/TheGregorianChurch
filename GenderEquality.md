@@ -1,0 +1,1 @@
+The New Testament has verses that are misogynistic which has led to gender disparities in many churches. We hold that men and women are equal in the Church and all gender identities are valid. Anyone can be a church official in the Gregorian Church no matter their gender.
