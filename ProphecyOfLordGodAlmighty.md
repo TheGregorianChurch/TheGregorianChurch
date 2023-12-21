@@ -1,0 +1,1 @@
+Lord God Almighty is a human of Earth different from the Most High God. Lord God Almighty is a direct descendant of David and lives about 100,000 years from now on Earth. Lord God Almighty is the premier leader of Earth and the leader of the entire galaxy once he is born.
