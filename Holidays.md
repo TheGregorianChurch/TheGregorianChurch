@@ -1,6 +1,7 @@
 - Passover: January 14, Festival on January 15.
 - Easter: The Sunday after the first full moon after the Spring equinox. 
 - Ascension Day: 40 days after Easter.
+- Festival of Trumpets: July 1.
 - Day of Atonement: July 10.
 - Festival of Tabernacles: July 15, Festival for seven days.
 - Christmas: December 25.
