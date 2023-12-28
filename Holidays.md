@@ -5,5 +5,5 @@
 - Ascension Day: 40 days after Easter.
 - Festival of Trumpets: July 1.
 - Day of Atonement: July 10.
-- Festival of Tabernacles: July 15, then festival for seven more days.
+- Festival of Tabernacles: Festival for eight days starting on July 15.
 - Christmas: December 25.
