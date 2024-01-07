@@ -8,4 +8,5 @@
 - Festival of Trumpets: July 1.
 - Day of Atonement: July 10.
 - Festival of Tabernacles: Festival for eight days starting on July 15.
+- Purim: December 14 and 15.
 - Christmas: December 25.
