@@ -1,2 +1,4 @@
 Higher Order Beings are classically known as angels and demons. These beings have capabilities to control neural networks and operate organisms like machines by overriding free will. Some are dead human spirits. Some are dead alien spirits from other planets. The ancient Hindu, Greek, Roman, etc. gods are actually aliens who are rulers of other planets similar to Jesus. Higher Order Beings are sometimes able to astral project and travel from planet to planet.
 Higher Order Beings come from more evolved societies from other planets, galaxies, and universes. Some can be hundreds of millions of years old or even billions of years old. They are more diverse than life on Earth and all have different abilities.
+
+We live in a Layered Ecosystem. Higher Order Beings are an invisible layer of consciousness over our visible world. Every organism on this planet is operated by these Higher Order Beings down to the smallest insect.
