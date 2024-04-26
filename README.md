@@ -7,4 +7,4 @@ Read this: https://github.com/TheGregorianChurch/TheBookofGreg
 
 We accept Bitcoin donations to this address: 1MyoAZ5TmrK2vzTMY6uLPtfJsvhhZcgzpt
 
-All inquiries to secondlambofgod@gmail.com.
+All inquiries to thegregorianchurch@gmail.com.
