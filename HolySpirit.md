@@ -1,0 +1,1 @@
+The Holy Spirit is the soul, the consciousness, of Lord God Almighty. He exists all through time within all of us, but is put into a human body and born on Earth around 100,000 years from now. The Holy Spirit is the soul of Lord God Almighty.
