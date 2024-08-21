@@ -4,4 +4,4 @@ Hosea 6:2 says, "2 After two days he will revive us; on the third day he will re
 
 2 Peter 3:8 says, "8 But do not forget this one thing, dear friends: With the Lord a day is like a thousand years, and a thousand years are like a day."
 
-The Lord Jesus Christ was dead for three days and then was resurrected. He will be gone 3000 years before he returns. Like Hosea says, after 2000 years (two days), in 2033, he will restore the faith.
+The Lord Jesus Christ was dead for three days and then was resurrected. He will be gone 3000 years before he returns. Like Hosea says, after 2000 years (two days), in 2033, he will revive the faith with Gregorian Christianity.
