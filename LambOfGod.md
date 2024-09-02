@@ -1,3 +1,3 @@
 John refers to Jesus as the Lamb of God in the Bible. In the end times prophecy of Revelation, John speaks of another figure called the Lamb. This figure lives and breathes today and whoever he is, he will be given the Scroll with the Seven Seals from the right hand of Jesus. If you look at the Bamberg Apocalypse from the 11th century, the artist depicts Jesus as the one on the throne. So, the Lamb from Revelation is not Jesus. There are two Lambs of God.
 
-The End Times Lamb from Revelation is second in command to Jesus Christ on Earth.
+The End Times Lamb from Revelation is second in command to Jesus Christ on Earth. The End Times Lamb from Revelation is a direct descendant of David, through being a direct descendant of Jesus' brother Simon.
