@@ -1,0 +1,1 @@
+Adam and Eve were just two out of millions of humans about 5800 years ago. They were not the first two humans. They were not "created" like Moses asserted. They were both born and had parents. They were chosen by God to start the royal family of Earth.
