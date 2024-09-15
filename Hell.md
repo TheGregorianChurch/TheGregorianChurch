@@ -1,1 +1,0 @@
-Eternal hell is not a real place. If you sin you do not go to hell forever. In fact, if you're an extreme sinner like a rapist or murderer you will most likely just be reincarnated. Now you may be downgraded to a worse life and this life could be a sort of hell, but the classical representation of hell does not exist.
