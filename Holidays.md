@@ -4,7 +4,7 @@
 - Festival of Weeks: 50 days after Passover.
 - Feast of the Baptism of the Lamb: April 13.
 - Easter: The Sunday after the first full moon after the Spring equinox. 
-- Ascension Day: 40 days after Easter.
+- Ascension Day: 39 days after Easter.
 - Festival of Trumpets: July 1.
 - Day of Atonement: July 10.
 - Festival of Tabernacles: Festival for eight days starting on July 15.
