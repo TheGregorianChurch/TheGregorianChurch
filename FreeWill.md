@@ -1,0 +1,1 @@
+Free Will is an illusion and also a gift. Most people think they have free will but their guardian(s) actually control their minds outright. When free will is granted to a human it is a gift from God who stops mind control by the Higher Order Beings. Free Will is a gift of personal sovereignty from God.
