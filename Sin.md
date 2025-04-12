@@ -1,3 +1,3 @@
 You should always seek to not sin even though the definitions of what is sin can be unclear. Do your best to be a moral person. Gregorians believe humans have an innate sense of morality. We don't need a book to tell us what is moral. Even if you do sin, Jesus forgives you when you recognize your error. If you do something like murder or rape, then you won't be saved and will be reincarnated to try again. Jesus is the one who decides who gets saved meaning you get a new body in heaven and retain your memories.
 
-The Conservative idea that we are all born with innate sin and are all sinners is wrong. We are born with innate morality and are all moral people. It is mind control by Higher Order Beings that causes people to sin.
+The idea that we are all born with innate sin and are all sinners is wrong. We are born with innate morality and are all moral people. It is mind control by Higher Order Beings that causes people to sin.
