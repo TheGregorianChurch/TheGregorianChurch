@@ -1,1 +1,1 @@
-Religious clothing rules are stupid. Wear whatever you want.
+We reject all religious clothing rules. Wear whatever you want.
