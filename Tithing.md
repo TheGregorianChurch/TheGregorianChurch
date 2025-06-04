@@ -1,0 +1,1 @@
+This church has a vision to make the world a better place and that vision requires resources. The Gregorian Church will make tithing a requirement for members. Tithing is a donation of 10% of your income to the church. However, for members below a certain income threshold tithing is optional. They can give what they think they can afford, if anything at all.
