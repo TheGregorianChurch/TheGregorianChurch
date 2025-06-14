@@ -1,1 +1,1 @@
-The Most High God the Creator of the Infiniverse is the being who created everything who is in charge of everything everywhere.
+The Most High God the Creator of the Infiniverse is the being who created everything who is in charge of everything everywhere. He incarnates on planets once they are developed fully and perfectly. He will live on Earth in about 100,000 years. He lives on trillions (or more) planets at once.
