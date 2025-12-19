@@ -1,0 +1,1 @@
+Gregorians believe in meditation. Only meditate if you want to. You don't have to. You can use the traditional meditation position or you can be in any position and meditate. You can meditate sitting in a chair. You can meditate laying in your bed. Any position you want, just meditate if you want to.
