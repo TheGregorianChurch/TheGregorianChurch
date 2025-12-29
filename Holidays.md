@@ -9,4 +9,4 @@
 - Day of Atonement: July 10.
 - Festival of Tabernacles: Festival for eight days starting on July 15.
 - Purim: December 14 and 15.
-- Christmas: December 25.
+- The Festival of Christmas: The fourth Thursday of November until the first Sunday after January 8.
