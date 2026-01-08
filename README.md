@@ -7,5 +7,5 @@ The entire purpose of this ministry is to fully unite the world and create world
 
 Please read my book on Amazon Kindle here: https://a.co/d/1dq8uK8
 
-All inquiries to to
+All inquiries to
 gregorianchurch@protonmail.com
