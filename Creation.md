@@ -1,4 +1,4 @@
-God created the universe through the big bang about 14 billion years ago. God created the Sun about 4.6 billion years ago from a dense pocket of gas and dust that collapsed under gravity until there was enough pressure to ignite nuclear fusion. God created the Earth about 4.5 billion years ago from the leftover debris that had formed a protoplanetary disk around the Sun.
+God created the universe through the big bang about 13.8 billion years ago. God created the Sun about 4.6 billion years ago from a dense pocket of gas and dust that collapsed under gravity until there was enough pressure to ignite nuclear fusion. God created the Earth about 4.5 billion years ago from the leftover debris that had formed a protoplanetary disk around the Sun.
 
 3.8 billion years ago, God created the first microbial life on Earth. 2 billion years ago, God evolved those organisms into complex cells or eukaryotes. 600 million years ago, God evolved those eukaryotes into multicellular life. 500 million years ago, God started the Cambrian Explosion where he evolved multicellular life into all sorts of new organisms. 460 million years ago, God moved plants and other life onto land.
 
