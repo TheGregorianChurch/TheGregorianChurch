@@ -3,7 +3,7 @@
 - Festival of the Unleavened Bread: Festival for seven days starting on January 15.
 - Festival of Weeks: 50 days after Passover.
 - Feast of the Baptism of the Lamb: First Sunday after April 13.
-- Easter: The Sunday after the first full moon after the Spring equinox. 
+- Festival of Easter: The Sunday before the Sunday after the first full moon after the Spring equinox until the Monday after Easter Sunday. 
 - Ascension Day: 39 days after Easter.
 - Festival of Trumpets: July 1.
 - Day of Atonement: July 10.
