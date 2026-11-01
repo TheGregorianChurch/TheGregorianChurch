@@ -1,0 +1,1 @@
+Adherents will choose whether or not to bring Jesus into their heart with a prayer at age 12 to become junior members of the Church. Adherents will choose whether or not to get baptized and officially join the Church at age 21 and become full members. When adherents are baptized, their family should throw them a huge party to celebrate their adulthood.
